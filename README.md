@@ -6,7 +6,7 @@
   
 - 📫 I can be reached via [email](ezimorah@gmail.com) or via [Linkedin](https://www.linkedin.com/in/obinna-ezimorah-a62685148/)
 
-- I am open to a Data Analyst Role
+- 📭 I’m open to a Data Analyst role
   
 
 <!---
